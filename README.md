@@ -1,2 +1,2 @@
-# Mokshsart
+# Mokshart
 Art Exhibition
